@@ -1,0 +1,2 @@
+# superprofitmethod-
+Simple earning method
